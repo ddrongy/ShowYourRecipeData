@@ -1,3 +1,7 @@
+![슬라이드6](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/3f00d105-c0f7-415c-aec1-6b3cb275ab8e)
+![슬라이드7](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/ef3aa8dc-591c-42ee-b3f5-e83d1724671e)
+![슬라이드8](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/e863398b-48b2-44d9-8fad-b4d85a21d8c0)
+
 ![22캡스톤1_가3_발표자료-나만의셰프_page-0011](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/09b08ea1-0d83-4b08-b13b-e75f80267cc4)
 ![22캡스톤1_가3_발표자료-나만의셰프_page-0012](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/cc0aa499-b4cf-429e-845c-1e0e82fabb97)
 ![22캡스톤1_가3_발표자료-나만의셰프_page-0013](https://github.com/ddrongy/ShowYourRecipeData/assets/97080154/623b2a58-1175-49f7-b084-c040a5cbbdbf)
